@@ -2,4 +2,4 @@
 
 ## Hi there 👋
 
-Commercial Lighting Systems Ltd. is a bespoke lighting manufacturer located on the South Coast of England, United Kingdom.
+Commercial Lighting Systems Ltd. is a bespoke architectural and commercial lighting manufacturer located on the South Coast of England, United Kingdom.
